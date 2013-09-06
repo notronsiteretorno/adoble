@@ -1,3 +1,0 @@
-adoble
-======
-by notronsite
